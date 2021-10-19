@@ -18,3 +18,8 @@ https://user-images.githubusercontent.com/82959924/135956584-a95b9419-f52a-4d82-
 https://user-images.githubusercontent.com/82959924/135956607-9eebf888-d250-4971-83b3-13ff5e0f149e.mov
 
 ![ui_trace921](https://user-images.githubusercontent.com/82959924/135956627-a08a4d0e-0493-4a03-af87-0f36f3efc92c.png)
+
+![ui_trace1019-1](https://user-images.githubusercontent.com/82959924/137853060-a6de9289-d3af-47fb-9b99-2b972fd53d3c.png)
+
+![ui_trace1019-2](https://user-images.githubusercontent.com/82959924/137853069-1fd4f592-e1ee-4994-88c0-418dd40946f6.png)
+
