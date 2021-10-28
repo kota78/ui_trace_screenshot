@@ -23,3 +23,7 @@ https://user-images.githubusercontent.com/82959924/135956607-9eebf888-d250-4971-
 
 ![ui_trace1019-2](https://user-images.githubusercontent.com/82959924/137853069-1fd4f592-e1ee-4994-88c0-418dd40946f6.png)
 
+
+
+https://user-images.githubusercontent.com/82959924/139222913-13692f49-2511-4177-998c-95e713ad5bc9.mp4
+
